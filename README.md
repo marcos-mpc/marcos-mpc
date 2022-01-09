@@ -6,4 +6,4 @@
 - Foco em linguagem Python 🐍
 
 ### Minhas Redes Sociais:
-[INSTAGRAM](https://www.instagram.com/marcos_p_chaves/) | [LINKEDIN](linkedin.com/in/marcos-pereira-chaves-90b98b212)
+[INSTAGRAM](https://www.instagram.com/marcos_p_chaves/) | [LINKEDIN](https://linkedin.com/in/marcos-pereira-chaves-90b98b212)
